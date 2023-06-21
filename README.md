@@ -1,4 +1,4 @@
-![screencapture-127-0-0-1-5500-Adiss-Cupcakes-baker-1-0-0-service-html-2023-06-21-10_01_10](https://github.com/siru-kid/Adiss_Cupcakes/assets/75301678/cc1d91ee-226d-46f2-8a15-72b06194a67d)# Adiss_Cupcakes
+# Adiss_Cupcakes
 # Cake Selling Website for Home
 
 This is a cake selling website designed for home-based businesses. The website allows users to browse and purchase a variety of delicious homemade cakes.
