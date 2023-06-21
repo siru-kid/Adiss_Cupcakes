@@ -49,9 +49,9 @@ Our website offers a delectable selection of homemade cakes made with love and p
 
 If you have any questions, feedback, or inquiries, we'd love to hear from you. You can reach us through the following channels:
 
-- **Email**: Send us an email at info@cakesellinghome.com.
+- **Email**: Send us an email at sikuanbesa123@gmail.com.
 
-- **Phone**: Contact our customer support team at +1-123-456-7890.
+- **Phone**: Contact our customer support team at +251977169099.
 
 - **Social Media**: Follow us on Instagram, Facebook, and Twitter for the latest updates and mouthwatering cake photos.
 
